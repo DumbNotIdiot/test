@@ -5,4 +5,4 @@ Stop reading.
 
 ..
 
-Kidding, keep on.
+Kidding, keep on. Never stop.
